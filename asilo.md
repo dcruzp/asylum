@@ -2,13 +2,13 @@
 ## Daniel de la Cruz Preito 
 
 ### Chronology 
-1. military service 
+1. Military service 
 2. Start in College 
 3. Scholarchip denied
-4. events of July 11  
-5. car watching 
-6. leave the country 
-7. seige my family 
+4. Events of July 11  
+5. Car watching 
+6. Leave the country 
+7. Seige my family 
 
 
 
